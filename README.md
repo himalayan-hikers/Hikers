@@ -1,4 +1,4 @@
-# Hikers
+# Himalayan Hikers
 [Himalayan Hikers](https://www.himalayanhikers.in) is the most Trusted Trekking Community and Organisation in India. We have been working in the Adventure Area with a Experience and Knowledge since 1990.
 
 Being the locals we were always passionate about traversing Mountains and when trekking was not even properly known by the people in India, from that era we have opted Sustainable Trekking as our carrier.
